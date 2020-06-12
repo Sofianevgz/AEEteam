@@ -1,0 +1,1 @@
+# pentol-stiker-lucu-wa-
